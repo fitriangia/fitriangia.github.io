@@ -9,11 +9,15 @@ Materi pengajar yang fleksibel yang mudah untuk di ikuti menjadi salah satu keun
 
 Untuk pembelajarannya sendiri anda bisa kunjugi matawebsite.com yang mana merupakan media pembelajaran yang snagat efektif. Jika and atertarik anda isa bergabung dan dapatkan harga spesial yang bisa di dapatkan. Murid nantinya akan di ajarkan bagaimana membangun sebuah aplikasi agar bisa berjalan dengan baik dan tentunya akan bisa menjalankan atau membuat 1 aplikasi berbasis mobile android.
 
-Pemahaman konsep yang di ajarkan antara lain adalah:</br>
-1. Pemetaan konsep prototype desain aplikasi.</br>
-2. Fungsi aplikasi.</br>
-3. Tujuan aplikasi.</br>
-4. Menjalankan aplikasi.</br>
+Pemahaman konsep yang di ajarkan antara lain adalah:
+
+1. Pemetaan konsep prototype desain aplikasi.
+
+2. Fungsi aplikasi.
+
+3. Tujuan aplikasi.
+
+4. Menjalankan aplikasi.
 
 Yang harus anda kuasai adalah pemahaman konsep dalam membuat aplikasi android di gunakan untuk apa? fiturnya apa saja? apakah bermanfaat untuk banyak umum? inilah yang akan di berikan di matawebsite sebagai salah satu lembaga <a href="http://www.matawebsite.com/kursus-android-ios-mobile-app">kursus android</a> dalam memberikan ilmu materi yang bermanfaat. Tertarik silahkan hubungi nomor:
 
